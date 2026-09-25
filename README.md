@@ -240,4 +240,4 @@ Call of Duty: Mobile is available for free download, offering the complete versi
 Don't miss out on the action! Download Call of Duty: Mobile for an exhilarating gaming experience on your Windows PC today!
 
 ---
-**Last updated:** 2026-09-25 19:36:28 UTC
+**Last updated:** 2026-09-25 22:52:02 UTC
